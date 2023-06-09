@@ -1,1 +1,1 @@
-my first readme
+omo ehnn i dun tire
